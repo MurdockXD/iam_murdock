@@ -1,8 +1,8 @@
 # iam_murdock
-Hello Word🙌
+    Hello Word🙌
 
 
-💻Cracking Tools
-💻Programming
-💻Python
+I'am Murdock From Indonesian
 
+
+https://github.com/mitul3737/mitul3747
