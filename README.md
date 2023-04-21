@@ -1,2 +1,8 @@
 # iam_murdock
-Hello Word
+Hello Word🙌
+
+
+💻Cracking Tools
+💻Programming
+💻Python
+
